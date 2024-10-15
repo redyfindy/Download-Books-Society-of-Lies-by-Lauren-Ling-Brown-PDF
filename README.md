@@ -1,4 +1,4 @@
-Download Books Society of Lies by Lauren Ling Brown PDF
+Download Books Society of Lies by Lauren Ling Brown
 
 To Download Or Read Society of Lies
 
